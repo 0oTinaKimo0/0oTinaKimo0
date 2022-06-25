@@ -5,4 +5,4 @@
 - 🤔 I’m looking for help with **looking for a Software Engineering job**
 - 📫 How to reach me: tinakim0101@outlook.com
 - 😄 Pronouns: She/Her
-- ⚡ My CV: <a href= "https://drive.google.com/file/d/1Q7hXNlY1h_JrTNIRK6DM3PR4YTH0Z-u-/view?usp=sharing">Resume </a>
+- ⚡ My CV: <a href= "https://drive.google.com/file/d/1oSfNBCUF2H6sC7P0uUWhc4v2sc36B6-4/view?usp=sharing">Resume </a>
